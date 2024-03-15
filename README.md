@@ -1,4 +1,4 @@
-### francesblair
+###  **Discord**: [francesblair](https://discord.com/users/francesblair)
 
 <!--
 **fb7230515/fb7230515** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
